@@ -12,8 +12,10 @@
               √ https://globalnewstyme.blogspot.com
               √ https://dejerriesblqa.blogspot.com
 
-              LIKE/LIKE
+              LIKE/FOLLOW
               √ https://facebook.com/superjcybs
+              √ https://instagram.com/superjcybs
+              √ https://www.linkedin.com/company/super-j-cy-business-and-services
 
               SUBSCRIBE
               √ https://www.youtube.com/channel/UCnYL6e5pYht_mWKlEE7NTLw?sub_confirmation=1
