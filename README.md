@@ -13,12 +13,12 @@
               √ https://dejerriesblqa.blogspot.com
 
               LIKE/FOLLOW
-              √ https://facebook.com/superjcybs
-              √ https://instagram.com/superjcybs
-              √ https://www.linkedin.com/company/super-j-cy-business-and-services
+              √ https://facebook.com/superjcybs 
+              √ https://instagram.com/superjcybs 
+              √ https://www.linkedin.com/company/super-j-cy-business-and-services 
 
               SUBSCRIBE
-              √ https://www.youtube.com/channel/UCnYL6e5pYht_mWKlEE7NTLw?sub_confirmation=1
+              √ https://www.youtube.com/channel/UCnYL6e5pYht_mWKlEE7NTLw?sub_confirmation=1 
 
 <!---
 SuperJ-1/SuperJ-1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
