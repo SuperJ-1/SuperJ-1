@@ -2,7 +2,7 @@
 - 👀 I’m interested in becoming a Full stack web developer
 - 🌱 I’m currently learning edureka
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me https://wa.me/+97466930807 or jerrybabatunde1@gmail.com
+- 📫 How to reach me https://wa.me/+233247792110 or jerrybabatunde1@gmail.com
 - Visit my websites;
               √ https://superjcybs.com
               √ https://superjcybs.com/blog
@@ -18,7 +18,8 @@
               √ https://www.linkedin.com/company/super-j-cy-business-and-services 
 
               SUBSCRIBE
-              √ https://www.youtube.com/channel/UCnYL6e5pYht_mWKlEE7NTLw?sub_confirmation=1 
+              √ https://www.youtube.com/@superjcybs for Tutorials and
+                https://www.youtube.com/@tsbftv for Other Life matters
 
 <!---
 SuperJ-1/SuperJ-1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
